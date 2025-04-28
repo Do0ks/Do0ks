@@ -2,7 +2,8 @@
 
 One of the COOLEST projects im currently developing:  
 
-![image](https://github.com/user-attachments/assets/c7117a8c-e2be-4674-9737-df1f665ac90e)
+![image](https://github.com/user-attachments/assets/fdb4dd32-c45a-4a58-95ee-56759df48eaf)
+
 
 
 
