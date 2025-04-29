@@ -2,7 +2,7 @@
 
 One of the COOLEST projects im currently developing:  
 
-![image](https://github.com/user-attachments/assets/fdb4dd32-c45a-4a58-95ee-56759df48eaf)
+![mre](https://github.com/user-attachments/assets/5450f00e-4b70-4ce3-a8db-1a06e2793af9)
 
 
 
