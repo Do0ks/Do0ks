@@ -2,8 +2,4 @@
 
 One of the COOLEST projects im currently developing:  
 
-![mre](https://github.com/user-attachments/assets/5450f00e-4b70-4ce3-a8db-1a06e2793af9)
-
-
-
-
+![mre](https://github.com/user-attachments/assets/7a871e58-f918-4a8b-8822-2b953819edda)
